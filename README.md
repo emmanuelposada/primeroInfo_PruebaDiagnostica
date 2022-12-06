@@ -1,1 +1,0 @@
-# primeroInfo_PruebaDiagnostica
